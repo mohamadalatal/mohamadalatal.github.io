@@ -1,1 +1,0 @@
-# mohamadalatal.github.io
